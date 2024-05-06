@@ -5,6 +5,7 @@
 ## Ingredients
 
 - 1 cup sugar
+- A pinch of salt
 - 1 cup water
 - 1 vanilla bean (or 1 1/2 Tbsp vanilla extract)
 
