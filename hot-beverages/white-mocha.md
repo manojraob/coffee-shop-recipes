@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 4 Tbsp white chocolate chips or chopped white chocolate
-- 1 shot Espresso Roast
+- 2 shot Espresso Roast
 - 1 cup whole milk
 - Whipped cream
 
@@ -17,7 +17,7 @@
 
 ### Step 2
 
-- Prepare 1 shot of espresso and pour into a mug (1 shot = 1 oz).
+- Prepare 2 shot of espresso and pour into a mug (1 shot = 1 oz).
 
 ### Step 3
 
